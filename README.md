@@ -1,3 +1,3 @@
-Need support?
+Need support or have any questions for Recipe Planner?
 
-Email Callie Braithwaite at callie.tech.dev@gmail.com
+Email me @ callie.tech.dev@gmail.com
